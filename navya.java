@@ -1,2 +1,3 @@
 navya is good girl
-she is nouty
+navya is nouty 
+navya is fighting with kishore
